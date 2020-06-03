@@ -1,5 +1,4 @@
 # Yoga-Workout Application
-Yoga is one of those activities anyone can do pretty💖 much anywhere, and that’s especially true when you have an app on your smartphone.🦾🙍‍♂️
 
 **Yoga Workout - Yoga for Beginners - Daily Yoga** is best yoga workouts for Beginners and free Yoga workout. Yoga classes includes basic to yoga practice such as: basic asanas, Yoga poses, meditation...Yoga Workout help you to **relax, de-stress and keep you healthy**.
 
